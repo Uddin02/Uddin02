@@ -1,3 +1,5 @@
+![I am a Junior Front-end developer. ](https://github.com/Uddin02/Uddin02/blob/main/images/githubcover.png)
+
 ## :mailbox: Reach me out
 
 <br />
